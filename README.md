@@ -11,7 +11,6 @@
 
 - 👯 I’m looking to collaborate **with other content creators**
 
-- 📫 How to reach me **aniket1448@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
